@@ -5,9 +5,9 @@
 ![GIF](https://i.pinimg.com/1200x/d7/fa/49/d7fa49ebacdb2a1099503cc85a977832.jpg)
 
 
-<small style="margin-left: 10px;">ι kᥒ𐔖ᥕ ⲙ𐔤 ᥣ𐔖᥎ᥱ ᥕᥲ᥉ ᦔι𐔥𐔥ᥱrᥱᥒt 𐔥r𐔖ⲙ 𐔤𐔖ᥙr᥉.  bᥙt ιt ᥕᥲ᥉ ᥣ𐔖᥎ᥱ, t𐔖𐔖.!!</small>
-╥﹏╥
-
+<div align="center">
+  <h1>ι kᥒ𐔖ᥕ ⲙ𐔤 ᥣ𐔖᥎ᥱ ᥕᥲ᥉ ᦔι𐔥𐔥ᥱrᥱᥒt 𐔥r𐔖ⲙ 𐔤𐔖ᥙr᥉.  bᥙt ιt ᥕᥲ᥉ ᥣ𐔖᥎ᥱ, t𐔖𐔖.!!、  </h1> ノ_<、
+</div>
 
 </table>
 <div align="center">
