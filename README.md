@@ -1,5 +1,8 @@
-![GIF](https://i.pinimg.com/originals/51/ad/35/51ad3514c15cb5db1d1d551d5ba58a44.gif)
-![GIF](https://i.pinimg.com/736x/b9/48/de/b948dec8f948026c7abdbb40be975c31.jpg)
+<div align="center">
+  <img src="https://i.pinimg.com/originals/7a/bb/00/7abb006fef4383f6910046f7248b2101.gif" width="80%" />
+</div>
+
+![GIF](https://i.pinimg.com/1200x/d7/fa/49/d7fa49ebacdb2a1099503cc85a977832.jpg)
 
 
 <small style="margin-left: 10px;">ι kᥒ𐔖ᥕ ⲙ𐔤 ᥣ𐔖᥎ᥱ ᥕᥲ᥉ ᦔι𐔥𐔥ᥱrᥱᥒt 𐔥r𐔖ⲙ 𐔤𐔖ᥙr᥉.  bᥙt ιt ᥕᥲ᥉ ᥣ𐔖᥎ᥱ, t𐔖𐔖.!!</small>
